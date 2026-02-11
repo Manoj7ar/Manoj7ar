@@ -1,1 +1,2 @@
-![sun-god-depicted-as-powerful-man-renaissance-setting (2)](https://github.com/user-attachments/assets/982786b2-d302-4f07-995e-8ba6619e8558)
+<img width="1536" height="1024" alt="ChatGPT Image Feb 11, 2026, 12_20_22 PM" src="https://github.com/user-attachments/assets/58dc2997-359a-4625-8fc4-6d44276e4b26" />
+
